@@ -6,6 +6,6 @@ you can find at:
 
 [Linkedin](https://www.linkedin.com/in/alvaro-javier-alvarez-cardenas-81696056/)
 
-or if you prefer you can send me a message throught WhatsApp:
+Phone:
 
 +57 3128102004
